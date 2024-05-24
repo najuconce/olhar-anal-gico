@@ -1,2 +1,2 @@
-# olhar-anal-gico
+# olhar analógico
 portfólio online de fotografia
